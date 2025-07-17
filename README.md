@@ -1,1 +1,0 @@
-# Property-and-Rental-Management-Website
